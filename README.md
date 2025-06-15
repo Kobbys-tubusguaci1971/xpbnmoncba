@@ -3,8 +3,9 @@
 
 <br><br>
 
-<h3>➤ ►  <a href="https://Kobbys-tubusguaci1971.github.io/vfmvjjuqmx/">Silent Zone - DOWNLOAD</a> <br>
-➤ ►  <a href="https://Kobbys-tubusguaci1971.github.io/vfmvjjuqmx/">Silent Zone - Watch in player</a> �
+<h3>
+<a href="https://Kobbys-tubusguaci1971.github.io/vfmvjjuqmx/">➤ ► Silent Zone - download</a> <br/>
+<a href="https://Kobbys-tubusguaci1971.github.io/vfmvjjuqmx/">➤ ► Silent Zone - watch in player</a>
 </h3>
 
 
